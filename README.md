@@ -27,6 +27,6 @@ Infinix: Looking out for value driven smartphones? Well look no further than Inf
 
 **Why WeMobiles Is Your Ultimate Gadget Resource**
 
-In today’s ever changing mobile phone industry, having a reliable source such as WeMobiles can make or break your decision. With its wide-ranging brand coverage; up-to-date pricing information, thorough reviews and simple design – everything about mobile phones is easier with this site. Whether you’re an avid tech lover or just someone looking for good deals; let us help guide through these vast choices available in the market today!
+In today’s ever changing mobile phone industry, having a reliable source such as <a href="www.wemobiles.com" target="_blank" Alt="Wemobiles">WeMobiles</a> can make or break your decision. With its wide-ranging brand coverage; up-to-date pricing information, thorough reviews and simple design – everything about mobile phones is easier with this site. Whether you’re an avid tech lover or just someone looking for good deals; let us help guide through these vast choices available in the market today!
 
 Visit them now: www.wemobiles.com
